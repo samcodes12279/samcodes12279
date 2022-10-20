@@ -10,14 +10,14 @@ I am super introverted but can be extroverted when I feel comfortable (I am an I
 ## What do you want us to know about your communication style?
 * I am very shy and often struggle reading social interactions. I try hard to come out of my shell because once I do I am very extroverted and can likely talk your ear off.
 * I love 'disclosure reciprocity' so often times I will use that to build rapport with people especially when we first meet just to even the playing ground and make us all feel comfortable.
-* Written communication has my heart. There is no tone in an slack message (most of the times) or emails. I know exactly what needs to be done when information is relayed to me written. If there is still a misunderstanding I then pivot towards oral communication. In the interest of time and saving everyones from hopping on a zoom, shoot me a message first!
+* Written communication has my heart. There is no tone in an slack message (most of the time) or emails. I know exactly what needs to be done when information is relayed to me written. If there is still a misunderstanding I then pivot towards oral communication. In the interest of time and saving everyones from hopping on a zoom, shoot me a message first!
 
 ## What are some useful things to know in advance about your style?
 * I am autistic, so sometimes I can come off blunt or rude when I communicate. That is NEVER my intention I am still learning what is socially appropriate and how the average neurotypical individual behaves.
 * I prefer direct communication. I am very neurotic and can often times dive way deeper than I should into something and it will be easier for everyone if you are straight to the point with your ask.
 
 ## How can you best work with me?
-*  Please show me how you do something, record it, and write it down in detail. I love to be able to cross reference something that was written in the past as it allows me to easily remember.
+*  Please show me how you do something, record it, and write it down in detail. I love the opportunity to cross reference something that was written in the past as it allows me to easily remember.
 
 ## What are your pet peeves?
 * Cats. They are extremely gross and super scary.
